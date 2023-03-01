@@ -2,6 +2,4 @@
 
 ## Jare jeolous of Folk for having a cute girl friends
 
-
-
-## Jare doesn't like YALA girl
+-add two record
